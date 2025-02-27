@@ -1,2 +1,1 @@
-# Sms-boomber
-101m Method Sms Boomber orta kalite
+Kurulum için discordan ulaşınız discord.gg/101m 3>
